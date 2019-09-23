@@ -39,6 +39,14 @@ Don't be tempted to take your hands off controls to wave or salute automobiles t
 
 Enable your high beams when splitting in daylight.
 
+## Watch out for turn signals.
+
+When a car ahead of you flashes their turn signal in your direction, slow down or stop before passing them.  They may start moving in their lane, even if there's no space in the next lane for them to merge into.
+
 ## Check for other motorcycling before splitting.
 
 Before leaving a lane to split, check behind for any motorcyclist already splitting that lane behind you.
+
+## When splitting toward a stop, look out for panhandlers.
+
+In heavy traffic, panhandlers may set up between lanes at stop signs and stop lights.
